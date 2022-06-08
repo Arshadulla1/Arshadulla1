@@ -1,4 +1,4 @@
-Hi, I’m Mohammad Arshadulla Noor.
+Hello, I’m Mohammad Arshadulla Noor.
 Interested in Data Science.
 I'm positive and extremely extrovert personality with a never-ending urge to learn and grow.
 Focused and determined to accomplish the best possible results for any given responsibility.
